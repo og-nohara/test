@@ -2,4 +2,3 @@
 pppppp
 ookok
 llllllllllllllll
-あああああ
